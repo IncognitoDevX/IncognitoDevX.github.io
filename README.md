@@ -4,4 +4,4 @@
 Please do not **MISUSE** the code.
 
 ![The world has many things we can fix and cannot. Click on some of the slots to look at the problems modern-day technology can fix.!](Technology-Image.jpg) 
-"A Image of Technology at its best. Credits: skill-lync.com"
+[A Image of Technology at its best. Credits: skill-lync.com!]
